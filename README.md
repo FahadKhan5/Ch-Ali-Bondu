@@ -1,4 +1,4 @@
-# Ch-Ali-Bondu
+# Ch-Ali Jutt
 
 
-Hi I am ch Ali bondu from GCUF LC
+Hi I am ch Ali from GCUF LC
